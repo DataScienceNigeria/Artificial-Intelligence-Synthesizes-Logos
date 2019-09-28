@@ -1,0 +1,1 @@
+# Get-Artificial-Intelligence-to-synthesize-logos-at-much-greater-resolution-and-detail-than-before.-A
